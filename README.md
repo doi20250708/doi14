@@ -10,4 +10,4 @@
 
 本专区精选日韩免费高清资源，覆盖经典剧情、无码演绎及高人气女优系列。无需注册，支持手机/电脑全端播放，画质高清不卡顿。每日持续更新，内容多元，特别适合偏爱日韩风格与高品质内容的观众。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/doi20250708/doi14 ）</span>
